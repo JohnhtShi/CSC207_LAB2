@@ -7,6 +7,9 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1/2 tsp ground cinnamon
+- Milk
+- 3/4 Tonnes of eggs
+- 1/2 cup vegetable oil
 - ...
 
 ## Instructions:
